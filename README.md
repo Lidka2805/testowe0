@@ -8,3 +8,4 @@ drugie cokolwiek
 dopiska brunch1
 
 dopiska konflikt
+jeszcze konflikt

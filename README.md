@@ -6,3 +6,5 @@ coklwiek
 drugie cokolwiek
 
 dopiska brunch1
+
+dopiska konflikt

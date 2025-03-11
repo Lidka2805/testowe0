@@ -9,3 +9,7 @@ dopiska brunch1
 
 dopiska konflikt
 jeszcze konflikt
+hsgdfubsgvubawevbl
+waiukyhghghghghghgaeuyiwrg
+wejfygwueygkfdbvskfhefwo
+wuaygfebkkkkkk\jsehvf

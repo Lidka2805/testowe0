@@ -3,6 +3,4 @@
 
 drugie cokolwiek
 
-jaefvuwfekkkkkkkkkkbvuewr
-ajewhgfbweurygvaeugeu
-awjehgfvuewyyyyygvr
+

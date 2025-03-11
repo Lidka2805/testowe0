@@ -1,15 +1,6 @@
-# testowe0
-Można dać opis
+# testowe0 dopiska brunch2
 
-coklwiek
 
 drugie cokolwiek
 
-dopiska brunch1
 
-dopiska konflikt
-jeszcze konflikt
-hsgdfubsgvubawevbl
-waiukyhghghghghghgaeuyiwrg
-wejfygwueygkfdbvskfhefwo
-wuaygfebkkkkkk\jsehvf
